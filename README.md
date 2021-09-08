@@ -1,6 +1,8 @@
 
 ![Meet me](https://i.imgur.com/jbXvmeD.gif)
 
+![STATS](https://wakatime.com/@Pavelteams)
+
 
 
 
