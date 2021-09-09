@@ -3,7 +3,6 @@
 
 
 
-![STATS](https://wakatime.com/@Pavelteams)
 
 
 
