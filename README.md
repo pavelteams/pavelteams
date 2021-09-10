@@ -13,7 +13,7 @@
 -[DONT CLICK](https://www.youtube.com/watch?v=iik25wqIuFo)
 - 👋Hello i am Soufi
 - 👀 I love coding and pasting projects
--..ok?#6516
+- ..ok?#6516
 
 <!---.
 I love u
